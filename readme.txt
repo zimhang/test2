@@ -1,1 +1,1 @@
-you are a stupid man
+you are a stupid man ,I want to say i will try my best to protect you for our last life
